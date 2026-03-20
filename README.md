@@ -36,7 +36,7 @@ I'm curious about: **Deep Learning · MLOps · Computer Vision · Blockchain · 
 
 ### Resume 📃
 
-Have a look here at [abisheiks.dev/resume](https://drive.google.com/file/d/1KLgeGD2CftNQ9jVmSckO5ghThAhIMuhE/view?usp=sharing)
+Have a look here at [abisheiks.dev/resume](https://drive.google.com/file/d/1WAn_Wztnze479MHrTZTe4D8KxZucLMso/view?usp=sharing)
 
 ---
 
